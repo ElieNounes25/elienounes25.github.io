@@ -6,4 +6,5 @@
 - [https://www.reddit.com/user/ElieNounes25/](https://www.reddit.com/user/ElieNounes25/)
 - [Larian Studios’ Bold Move: Relocating Staff Amidst Conflict](https://medium.com/@ElieNounes25/larian-studios-bold-move-relocating-staff-amidst-conflict-55e032091337)
 - [Youtube](https://www.youtube.com/watch?v=DLbNVemJA40)
+- [Quora](https://elienounes25.quora.com/Larian-Studios-Relocates-Staff-to-Avoid-Draft-During-Russia-Ukraine-Conflict-Larian-Studios-the-developer-behind-the-a)
 
